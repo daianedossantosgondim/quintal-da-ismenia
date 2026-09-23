@@ -1,1 +1,0 @@
-# quintal-da-ismenia
